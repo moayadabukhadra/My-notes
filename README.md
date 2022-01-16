@@ -1,3 +1,0 @@
-# My-notes
- 
- moayad abukhadra.
